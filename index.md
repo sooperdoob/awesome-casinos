@@ -76,4 +76,8 @@ Welcome to our handpicked collection of online casinos offering daily free play 
 
 ## Important Note
 
-💡 Please consider using the referral links above to show your appreciation for the time invested in creating this list. Let the gaming excitement begin! 🚀
+💡 Please consider using the referral links above to show your appreciation for the time invested in creating this list. Let the gaming excitement begin!
+
+
+![Visitor Count](https://profile-counter.glitch.me/sooperdoob/count.svg)
+
