@@ -74,19 +74,7 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Banking Methods:* Crypto, Visa, MasterCard, Discover, Amex
   - *Bonus:* Receive $0.10 SC hourly ($2.40 daily). ⏰💰
 
-## What is SC?
-
-SC, or Sweeps Coins, is a virtual currency used in various online casinos and gaming platforms. Unlike traditional currencies, SC is often used as a promotional or reward currency, allowing players to engage in games and activities without the need for real money.
-
-- **Promotional Use:** Online casinos often distribute SC as part of promotions, bonuses, or daily rewards, giving players the opportunity to play games without using their own funds.
-
-- **Redeemable Prizes:** Players can accumulate SC through gameplay and then redeem it for various prizes, including additional play credits, bonuses, or even real-world items in some cases.
-
-- **Legal Considerations:** Sweeps Coins are designed to comply with sweepstakes laws, providing a legal framework for online gaming platforms. This allows players to participate in casino activities in regions where online gambling may have legal restrictions.
-
-It's important to check the specific terms and conditions of each platform to understand how SC is used and any limitations associated with its usage.
-
-## Important Note
+## Note
 
 💡 Please consider using the referral links above to show your appreciation for the time invested in creating this list. Let the gaming excitement begin!
 
