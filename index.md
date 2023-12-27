@@ -72,4 +72,4 @@ Welcome to our curated list of online casinos offering daily free play opportuni
 - **Banking Methods:** Crypto, Visa, MasterCard, Discover, Amex
 - **Bonus:** Receive $0.10 SC hourly ($2.40 daily).
 
-### Note: Please use the referral links provided in the spreadsheet above to show appreciation for the time invested in creating this list. Happy gaming!
+### Note: Please use the referral links provided above to show appreciation for the time invested in creating this list. Happy gaming! 🎮
