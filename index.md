@@ -48,6 +48,11 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Providers:* Pragmatic, High 5 Casino Originals, Slingo
   - *Banking Methods:* Bank Transfer, Visa, MasterCard, Discover, Amex, PayPal, Skrill
   - *Bonus:* Receive $0.50 SC free daily! 💵
+ 
+- **[Lucky Land Slots](https://luckylandslots.com)**
+  - *Providers:* Pragmatic, Relax Gaming, Fireshot
+  - *Banking Methods:* Bank Transfer, Visa, MasterCard, Discover, Amex, Skrill, Gift Cards
+  - *Bonus:* Experience a progressive daily bonus starting at $0.30 SC, growing each day consecutively collected. 🔄
 
 - **[Scratchful](https://scratchful.com/?r=826086841)**
   - *Providers:* Pragmatic, Relax Gaming, 3 Oaks Gaming, Playson, RubyPlay, BGaming
