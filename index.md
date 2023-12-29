@@ -54,6 +54,11 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Banking Methods:* Bank Transfer, Visa, MasterCard, Discover, Amex, Skrill, Gift Cards
   - *Bonus:* Progressive daily bonus starting at $0.30 SC, growing each day consecutively collected. 💰
 
+- **[Golden Hearts Games](https://goldenheartsgames.com/referral/LLNP98Y30V)**
+  - *Providers:* NetGaming
+  - *Banking Methods:* Visa, MasterCard, Discover, Amex
+  - *Bonus:* Spin wheel for a random daily bonus amount 🤑
+
 - **[Scratchful](https://scratchful.com/?r=826086841)**
   - *Providers:* Pragmatic, Relax Gaming, 3 Oaks Gaming, Playson, RubyPlay, BGaming
   - *Banking Methods:* Visa, MasterCard, Discover, Google Pay
