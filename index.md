@@ -126,6 +126,11 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Banking Methods:* Crypto
   - *Note:* Kirgo.com provides a top-tier gaming environment with a commitment to user satisfaction.
 
+- **[bc.game](https://bc.game)**
+  - *KYC/VPN Friendly:* Yes
+  - *Banking Methods:* Crypto
+  - *Note:* Discover an exceptional gaming experience at bc.game, known for its innovative features and secure transactions.
+
 ## Note
 
 Please consider using the referral links above to show your appreciation for the time invested in creating this list. Let the gaming excitement begin! 💡
