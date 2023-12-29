@@ -20,7 +20,7 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Bonus:* Grab $0.20 SC daily and enjoy an unlimited SC faucet! 🌟
 
 - **[Chumba Casino](https://lobby.chumbacasino.com)**
-  - *Providers:* Pragmatic, ReelPlay, Fireshot
+  - *Providers:* Pragmatic, Relax Gaming, ReelPlay, Fireshot
   - *Banking Methods:* Visa, MasterCard, Discover, and more
   - *Bonus:* Claim $1 SC free daily – the adventure begins! 🎁
 
