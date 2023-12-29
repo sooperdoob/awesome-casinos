@@ -89,17 +89,17 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Banking Methods:* Crypto, Visa, MasterCard, Discover, Amex
   - *Bonus:* Receive $0.10 SC hourly ($2.40 daily). ⏰💰
 
-- **[Casino Brango](https://casinobrango.com)**
+- **[Casino Brango](https://casinobrango.com)** (mid)
   - *Providers:* Realtime Gaming
   - *Banking Methods:* Crypto, Visa, MasterCard, Discover, Amex
   - *Bonus:* 50 free spins daily 🎁
 
-- **[Yabby Casino](https://yabbycasino.com)**
+- **[Yabby Casino](https://yabbycasino.com)** (mid)
   - *Providers:* Realtime Gaming
   - *Banking Methods:* Crypto, Visa, MasterCard, Discover, Amex
   - *Bonus:* 50 free spins daily 🌟
 
-- **[Casino Extreme](https://casinoextreme.eu)**
+- **[Casino Extreme](https://casinoextreme.eu)** (mid)
   - *Providers:* Realtime Gaming
   - *Banking Methods:* Crypto, Visa, MasterCard, Discover, Amex
   - *Bonus:* 50 free spins daily 🫰
