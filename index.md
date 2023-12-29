@@ -99,6 +99,10 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Banking Methods:* Crypto, Visa, MasterCard, Discover, Amex
   - *Bonus:* 50 free spins daily 🌟
 
+- **[Casino Extreme](https://casinoextreme.eu)**
+  - *Providers:* Realtime Gaming
+  - *Banking Methods:* Crypto, Visa, MasterCard, Discover, Amex
+  - *Bonus:* 50 free spins daily 🫰
 
 ## Note
 
