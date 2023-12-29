@@ -79,6 +79,12 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Banking Methods:* Crypto, Visa, MasterCard, Discover, Amex
   - *Bonus:* 50 free spins daily 🎁
 
+- **[Yabby Casino](https://yabbycasino.com)**
+  - *Providers:* Realtime Gaming
+  - *Banking Methods:* Crypto, Visa, MasterCard, Discover, Amex
+  - *Bonus:* 50 free spins daily 🌟
+
+
 ## Note
 
 Please consider using the referral links above to show your appreciation for the time invested in creating this list. Let the gaming excitement begin! 💡
