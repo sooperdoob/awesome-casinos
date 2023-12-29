@@ -59,6 +59,11 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Banking Methods:* Visa, MasterCard, Discover, Amex
   - *Bonus:* Spin wheel for a random daily bonus amount 🤑
 
+- **[McLuck](https://mcluck.com)**
+  - *Providers:* Pragmatic, Relax Gaming, 3 Oaks Gaming, Playson, RubyPlay, BGaming
+  - *Banking Methods:* Visa, MasterCard, Discover, Google Pay
+  - *Bonus:* Random amount between $0.20-$2.00 free play daily. 🚀
+
 - **[Scratchful](https://scratchful.com/?r=826086841)**
   - *Providers:* Pragmatic, Relax Gaming, 3 Oaks Gaming, Playson, RubyPlay, BGaming
   - *Banking Methods:* Visa, MasterCard, Discover, Google Pay
