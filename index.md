@@ -88,6 +88,11 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Providers:* Pragmatic, Hacksaw, Chanced Originals
   - *Banking Methods:* Crypto, Visa, MasterCard, Discover, Amex
   - *Bonus:* Receive $0.10 SC hourly ($2.40 daily). ⏰💰
+ 
+- **[Vegas Gems](https://vegasgems.com)**
+  - *Providers:* Pragmatic, Belatra, Gameart, Vegas Gems Originals
+  - *Banking Methods:* Crypto, Visa, MasterCard, Neteller, Skrill, Google Pay
+  - *Bonus:* Daily case opening with a random amount of SC 🚀
 
 - **[Casino Brango](https://casinobrango.com)** (mid)
   - *Providers:* Realtime Gaming
