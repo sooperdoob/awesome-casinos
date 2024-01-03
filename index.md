@@ -109,6 +109,12 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Banking Methods:* Crypto, Visa, MasterCard, Discover, Amex
   - *Bonus:* 50 free spins daily 🎰
 
+- **[BonusBlitz](https://bonusblitz.com)** (mid)
+  - *Providers:* Realtime Gaming
+  - *Banking Methods:* Crypto, Visa, MasterCard, Discover, Amex
+  - *Bonus:* 50 free spins daily 🤑
+
+
 ## Top-Tier Casinos (No Free Play)
 
 - **[Rollbit](https://rollbit.com)**
