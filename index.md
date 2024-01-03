@@ -92,7 +92,7 @@ Welcome to our handpicked collection of online casinos offering daily free play 
 - **[Vegas Gems](https://vegasgems.com)**
   - *Providers:* Pragmatic, Belatra, Gameart, Vegas Gems Originals
   - *Banking Methods:* Crypto, Visa, MasterCard, Neteller, Skrill, Google Pay
-  - *Bonus:* Daily case opening with a random amount of SC 🚀
+  - *Bonus:* Daily case opening with a random amount of SC 💵
 
 - **[Casino Brango](https://casinobrango.com)** (mid)
   - *Providers:* Realtime Gaming
