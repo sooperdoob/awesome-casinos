@@ -74,7 +74,7 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Banking Methods:* Bank Transfer, Visa, MasterCard, Discover, Amex, Skrill
   - *Bonus:* Engage in a progressive daily bonus starting at $0.25 SC, growing each day consecutively collected. 📈
 
-- **[SweepsLots](https://sweepsLots.com)**
+- **[SweepsLots](https://sweepslots.scaletrk.com/click?o=1&a=107&c=17)**
   - *Providers:* Relax Gaming
   - *Banking Methods:* Visa, MasterCard, Discover, Amex, Skrill
   - *Bonus:* Receive $0.30 free daily. 💸
