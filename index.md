@@ -132,7 +132,7 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Banking Methods:* Crypto
   - *Note:* Dive into the competitive world of gaming at Duelbit, where challenges await at every turn.
 
-- **[Stake.com](https://stake.com)**
+- **[Stake.com](https://stake.com/?c=8SgNsUpx)**
   - *KYC/VPN Friendly:* Yes
   - *Banking Methods:* Crypto
   - *Note:* Stake.com is a premier online casino with a wide range of games and a user-friendly experience.
