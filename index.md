@@ -122,7 +122,7 @@ Welcome to our handpicked collection of online casinos offering daily free play 
 
 ## Top-Tier Casinos (No Free Play)
 
-- **[Rollbit](https://rollbit.com)**
+- **[Rollbit](https://rollbit.com/referral/D00B3R)**
   - *KYC/VPN Friendly:* Yes
   - *Banking Methods:* Crypto
   - *Note:* Rollbit offers a top-tier gaming experience with a focus on fairness and security.
