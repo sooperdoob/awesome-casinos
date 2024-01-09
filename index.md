@@ -155,6 +155,12 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Banking Methods:* Crypto
   - *Note:* Discover an exceptional gaming experience at bc.game, known for its innovative features and secure transactions.
 
+- **[CryptoLeo7](https://gc1.pw/?referralCode=68b46w9)**
+  - *KYC/VPN Friendly:* Yes
+  - *Banking Methods:* Crypto
+  - *Note:* Explore the world of gaming with CryptoLeo7, offering a secure and thrilling experience for crypto enthusiasts.
+
+
 ## Note
 
 Please consider using the referral links above to show your appreciation for the time invested in creating this list. Let the gaming excitement begin! 💡
