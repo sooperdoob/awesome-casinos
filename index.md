@@ -120,6 +120,14 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Bonus:* 50 free spins daily 🤑
 
 
+## Promotions
+
+- **[Roobet.fun](https://roobet.fun)**
+  - *Providers:* Pragmatic
+  - *Banking Methods:* Crypto
+  - *Bonus:* Engage in weekly tournaments with daily free spins for a chance to climb the leaderboard and win Bitcoin rewards.
+
+
 ## Top-Tier Casinos (No Free Play)
 
 - **[Rollbit](https://rollbit.com/referral/D00B3R)**
