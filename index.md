@@ -63,6 +63,11 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Providers:* Pragmatic, Relax Gaming, 3 Oaks Gaming, Playson, RubyPlay, BGaming
   - *Banking Methods:* Visa, MasterCard, Discover, Google Pay
   - *Bonus:* Random amount between $0.20-$2.00 free play daily. 🚀
+ 
+- **[Hello Millions](https://www.hellomillions.com/?r=914157854)**
+  - *Providers:* Pragmatic, Relax Gaming, 3 Oaks Gaming, Playson, RubyPlay, BGaming
+  - *Banking Methods:* Visa, MasterCard, Discover, Google Pay
+  - *Bonus:* Daily free play bonus: $0.20 to $2.00. 🎉
 
 - **[Scratchful](https://scratchful.com/?r=826086841)**
   - *Providers:* Pragmatic, Relax Gaming, 3 Oaks Gaming, Playson, RubyPlay, BGaming
