@@ -72,7 +72,7 @@ Welcome to our handpicked collection of online casinos offering daily free play 
 - **[Scratchful](https://scratchful.com/?r=826086841)**
   - *Providers:* Pragmatic, Relax Gaming, 3 Oaks Gaming, Playson, RubyPlay, BGaming
   - *Banking Methods:* Visa, MasterCard, Discover, Google Pay
-  - *Bonus:* No daily bonus available. 🚫
+  - *Bonus:* Now includes a daily bonus: $0.20 to $2.00. 🚫
 
 - **[Global Poker](https://globalpoker.com)**
   - *Providers:* Pragmatic, Slotmill, Relax Gaming, Fireshot
