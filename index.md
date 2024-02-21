@@ -38,6 +38,11 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Providers:* Pragmatic, Relax Gaming, EvoPlay
   - *Banking Methods:* Bank Transfer, Visa, MasterCard, Discover, Amex, Skrill, PaySafe
   - *Bonus:* Claim $1 SC free daily. 🎉
+ 
+- **[Sportzino](https://sportzino.com/register/154d234b-2fc2-4f44-9b4d-290756f2f593)**
+  - *Providers:* Pragmatic, Relax Gaming, EvoPlay
+  - *Banking Methods:* Visa, MasterCard, Discover, Amex, Skrill
+  - *Bonus:* Daily reward of $1 in SC credits! 🤑
 
 - **[Pulsz](https://pulsz.com/?invited_by=34wfnt)**
   - *Providers:* Pragmatic, Relax Gaming, Habanero
