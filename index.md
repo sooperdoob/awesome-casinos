@@ -74,6 +74,11 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Banking Methods:* Visa, MasterCard, Discover, Google Pay
   - *Bonus:* Now includes a daily bonus: $0.20 to $2.00. 💲
 
+- **[Stackr Casino](https://www.stackrcasino.com?referralcode=54da1a66-3638-43f7-a93d-254c0c74d57d)**
+  - *Providers:* Hacksaw
+  - *Banking Methods:* Crypto, Plaid
+  - *Bonus:* Daily $1.00 SC. 💰
+
 - **[Global Poker](https://globalpoker.com)**
   - *Providers:* Pragmatic, Slotmill, Relax Gaming, Fireshot
   - *Banking Methods:* Bank Transfer, Visa, MasterCard, Discover, Amex, Skrill
