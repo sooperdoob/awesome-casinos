@@ -98,6 +98,11 @@ Welcome to our handpicked collection of online casinos offering daily free play 
   - *Providers:* BGaming, BetSoft
   - *Banking Methods:* Crypto, Visa, MasterCard, Discover, Amex, Google Pay
   - *Bonus:* Experience a progressive daily bonus starting at $0.50 SC, growing each day consecutively collected. 🚀
+ 
+- **[Rolling Riches](https://www.rollingriches.com/)**
+  - *Providers:* Pragmatic, Relax Gaming, Hacksaw
+  - *Banking Methods:* Visa, MasterCard, Discover, Amex, Online Banking
+  - *Bonus:* Earn $0.20 every 6 hours 🕒
 
 - **[Chanced](https://chanced.com/?aid=26657)**
   - *Providers:* Pragmatic, Hacksaw, Chanced Originals
