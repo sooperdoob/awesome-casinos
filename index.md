@@ -1,10 +1,12 @@
-## Daily Free Play at Online Casinos
+## Daily Free Play
 
-- **[Stake.us](https://stake.us/?c=6992f60f5a)**
+- **[Stake.us](https://stake.us/?c=3x8fetmD)**
+- **[Shuffle.us](https://shuffle.us?r=iltm4lsPlo)**
 - **[Modo.us](https://modo.us?referralCode=_MZ4Iv2bx3tX)**
+- **[LoneStar Casino](https://lonestarcasino.com/refer/1250656)**
+- **[Crown Coins Casino](https://crowncoinscasino.com/?utm_campaign=e8a124de-7d1b-433c-af63-ebef876b37da)**
 - **[LuckyBird.io](https://luckybird.vip/?c=c_superdoob)**
 - **[Chumba Casino](https://lobby.chumbacasino.com)**
-- **[Crown Coins Casino](https://crowncoinscasino.com/?utm_campaign=e8a124de-7d1b-433c-af63-ebef876b37da)**
 - **[Zula Casino](https://zulacasino.com/register/3be51717-227b-4495-a83a-65f7d75d4ed1)**
 - **[Fortune Coins](https://fortunecoins.com/register/5640b2d2-28cf-4ec1-97d4-1f22b7ff6aaa)**
 - **[Sportzino](https://sportzino.com/register/154d234b-2fc2-4f44-9b4d-290756f2f593)**
@@ -22,11 +24,12 @@
 
 ## Deposit Only Casinos (No Free Play)
 
+- **[Rainbet](https://rainbet.com/?r=subnet)**
+- **[Stake.com](https://stake.com/?c=8SgNsUpx)**
 - **[Rollbit](https://rollbit.com/referral/D00B3R)**
 - **[Duelbit](https://duelbits.com)**
-- **[Stake.com](https://stake.com/?c=8SgNsUpx)**
 - **[Kirgo](https://kirgo.com)**
-- **[bc.game](https://bc.game/i-qd0q09u2-n/)**
+- **[bcgame.nz](https://bcgame.nz/i-mwp7vcul-n/)**
 - **[CryptoLeo7](https://gc1.pw/?referralCode=68b46w9)**
 
 ## Note
