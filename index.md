@@ -16,7 +16,7 @@
 - **[Golden Hearts Games](https://goldenheartsgames.com/referral/LLNP98Y30V)**
 - **[McLuck](https://www.mcluck.com/?r=837679398)**
 - **[Hello Millions](https://www.hellomillions.com/?r=914157854)**
-- **[Scratchful](https://scratchful.com/?r=826086841)**
+- **[SpinBlitz](https://www.spinblitz.com/?r=826086841)**
 - **[Stackr Casino](https://www.stackrcasino.com?referralcode=54da1a66-3638-43f7-a93d-254c0c74d57d)**
 - **[Global Poker](https://globalpoker.com)**
 - **[Rolling Riches](https://www.rollingriches.com/)**
