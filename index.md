@@ -1,4 +1,4 @@
-# 🎰 Daily Free Play at Online Casinos 🎲
+## Daily Free Play at Online Casinos
 
 - **[Stake.us](https://stake.us/?c=6992f60f5a)**
 - **[Modo.us](https://modo.us?referralCode=_MZ4Iv2bx3tX)**
